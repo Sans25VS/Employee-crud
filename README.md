@@ -88,5 +88,4 @@ Contact
 For any inquiries or feedback, feel free to reach out:
 
 Sanskar Gupta
-Email: your_email@example.com
-LinkedIn: Your LinkedIn Profile
+Email: sanskargupta37081@gmail.com
